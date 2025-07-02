@@ -27,6 +27,6 @@
 
 ## 📬 Контакты
 
-- Telegram: [@твой_ник](https://t.me/dimajustgo)
+- Telegram: [@dimajustgo](https://t.me/dimajustgo)
 - Email: saenkodmitriiol@gmail.com
 - Резюме по запросу — всегда открыт к стажировкам и предложениям!
